@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @H3artAttack
+- 👀 I’m interested in Anime, Edits, Music, Volleyball, and Manga
+- 🌱 I’m currently learning Japanese 
+- 💞️ I’m looking to collaborate on ???
+- 📫 How to reach me: Discord- </3#9440 | Pintrest- @He4rt_Att4ck | Wattpad- @Watching_Corn | YouTube- •Løve• </3 | TikTok- @suicide._.boy
